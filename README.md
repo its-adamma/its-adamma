@@ -9,4 +9,4 @@
      <br>and converse with SWE as an Opportunity Scholar
      * Retrospective published <a href="https://peopleofcolorintech.com/articles/18-takeaways-for-navigating-a-tech-conference-as-a-black-code-newbie/">here</a>, said to be useful by code newbies and Senior Engineers alike. 
 
-- 🌱 Begin fulll-time learning: Hackbright Academy SWR Fellow x Target 
+- 🌱 Began fulll-time learning: Hackbright Academy SWR Fellow x Target 
