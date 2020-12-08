@@ -3,7 +3,6 @@
 - 🇳🇬 Proud daughter of immigrants
 - 👩🏾‍💻 Previous: Program Manager for Black Women Talk Tech’s non profit arm, Talk Tech Association
 - 🎯 Aim: bridge gaps between access and opportunity through ethical code
-- 🗺️ Long-term: support safe and seamless, accessible tools for customers and collegue alike
 - ❤️ Motivation: Harm reduction and accessible tools for all
 - ⚡ Fun fact: born nearly three months early
 - 🤝 Confirmed Interest By: earning opportunities to attend tech conferences across the country 
