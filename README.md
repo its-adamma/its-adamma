@@ -1,6 +1,5 @@
 
 - ✏️ Pronouns: she/her
-- 🇳🇬 Proud daughter of immigrants
 - 👩🏾‍💻 Previous: Program Manager for Black Women Talk Tech’s non profit arm, Talk Tech Association
 - 🎯 Aim: bridge gaps between access and opportunity through ethical code
 - ❤️ Motivation: Harm reduction and accessible tools for all
